@@ -1,0 +1,4 @@
+# Fix Avast Antivirus Error 1068
+
+Avast Antivirus is one of the outstanding Internet security applications that protect your devices against online threats such as viruses, spyware, malware and also other cyber threats. Avast antivirus software is available for its users as a free version of various platforms like Windows, Mac, Android, and iOS and also for proprietary versions. With an intention to know more about this in detail, you can take <a href=" https://www.avastsupporthelpnumber.com/avast-tech-support">Avast  Tech Support Number </a> at the comfort of your home. 
+Some of the services that are included in Avast antivirus software can face a few errors or issues while using Avast antivirus on some computer. Sometimes they face Avast antivirus error code 1068 which usually takes place due to the corruption of Avast installation files. The information provided below is the detailed information about troubleshooting Avast antivirus error 1068.
